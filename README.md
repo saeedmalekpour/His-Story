@@ -18,6 +18,4 @@ His name is Saeed Malekpour, a 39-year-old web developer who has been jailed in 
 Death Sentence Called Off 
 
 
-Just recently the Supreme Leader of Iran, Ayatollah Seyed Ali Khamenei, called off Saeed’s death sentence and converted it to life in prison.
-
-Saeed is in Evin Prison.
+Just recently the Supreme Leader of Iran, Ayatollah Seyed Ali Khamenei, called off Saeed’s death sentence and converted it to life in prison. Saeed may spend the rest of his life in Evin Prison.
