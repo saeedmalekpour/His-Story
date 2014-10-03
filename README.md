@@ -1,7 +1,4 @@
-His-Story
-=========
-
-Saeed's arrest, imprisonment, death sentence and current situation 
+Saeed's Story 
 
 His name is Saeed Malekpour, a 39-year-old web programmer who has been jailed in Iran for the past six years. He was living in Canada when he took a trip to Iran to visit his dying father. Kidnapped off the streets of Tehran by Iranian forces on October 4, 2008, he was severely tortured both physically and psychologically to give televised confessions. After his jaw was broken and he was threatened with rape he complied with the forces and gave more than 30 hours of televised confessions. These false confessions are the only piece of so-called evidence the Iranian authorities have against him. Using the false confessions, the Iranian Judiciary sentenced him to death twice. His official charges are outlandish, the translation of them are as follows:
 
