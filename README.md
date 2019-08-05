@@ -1,4 +1,4 @@
-Saeed's Story
+Saeed's Story [UPDATE: Saeed is free and on Canadian soil: https://twitter.com/justice4iran/status/1157656790697414656?s=21]
 
 Saeed Malekpour has been in an Iranian jail for the past six years, his 'crime'? He put his name in some open source code that was later used by a website the iranian regime didn't like. Saeed was living in Canada when he took a trip to Iran to visit his dying father. While on this visit he was kidnapped off the streets of Tehran by Iranian forces on October 4, 2008, he was severely tortured both physically and psychologically.
 
